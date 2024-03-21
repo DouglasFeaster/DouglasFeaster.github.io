@@ -1,8 +1,5 @@
 # Douglas Feaster	
-Phone: 321-402-3936 
 
-
-E-Mail: douglasgfeaster@gmail.com
 
 
 ## Employment Experience:
